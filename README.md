@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Polikaaa.github.io/rsschool-cv/cv
